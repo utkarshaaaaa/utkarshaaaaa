@@ -7,7 +7,7 @@
 
 
 
-- 👨‍💻 All of my projects are available at [https://github.com/utkarshaaaaa](https://github.com/utkarshaaaaa)
+
 
 - 📫 How to reach me **vyasutkarsh11@gmail.com**
 
