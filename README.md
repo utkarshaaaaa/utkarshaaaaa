@@ -10,7 +10,7 @@
 
 
 - 📫 How to reach me **vyasutkarsh11@gmail.com**
-- Currently working on Web3 techonologies 
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
